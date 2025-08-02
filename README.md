@@ -1,4 +1,8 @@
 
+Enlance con archivo personal
+
+[[" Mis documentos personal"]](https://docs.google.com/document/d/1PxzRqJDRO1jOYLobzUI2-yn8EKwYGLDiYRL1m2UFbHg/edit?usp=sharing)]
+
 
 # Investigación sobre la Educación del Preceptor en Argentina: Provincia de Misiones
 
